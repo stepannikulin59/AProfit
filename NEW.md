@@ -1,1 +1,0 @@
-Prisestti i vstati
